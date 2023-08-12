@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mujiburrkhan
+- 👋 Hi, I’m @mujibur_khan
 - 👀 I’m interested in Turfgrass Science
 - 🌱 I’m currently learning Turfgrass Physiology 
 - 💞️ I’m looking to collaborate on doing research 
